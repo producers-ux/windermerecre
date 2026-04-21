@@ -1,1 +1,1 @@
-toolkit for windermere commercial team - Kate Pawlicki Bourne and Slavyan Panayotov
+toolkit for windermere commercial - Kate Pawlicki Bourne and Slavyan Panayotov + team members
